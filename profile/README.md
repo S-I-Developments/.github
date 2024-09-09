@@ -9,5 +9,5 @@ We encourage every user of this platform to contribute to our public and/or open
 ### Useful resources ###
 You can email us at stefanroets00@gmail.com and ... or on our discord's at https://discord.com/users/1173683964184113163 and
 ### Fun facts ###
-Cant go wrong with pancakes
+Can't go wrong with pancakes
 
